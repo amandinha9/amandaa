@@ -3,6 +3,9 @@ oii! me chamo Amanda, tenho 16 anos e estou naquela fase da vida em que estou de
 Tenho meus sonhos, minhas dúvidas e aquela vontade enorme de viver intensamente cada momento. As vezes sou calma, as vezes um furacão... depende do dia e da vibe.
 mas acima de tudo sou uma pessoa em constante evolução.
 [ilusão de uma criança](https://youtu.be/2H7oY5cRFp4?si=egoRNUi_AloSTIHD)
+_harmonia_
+**felicidade**
+![gratidão](https://media.tenor.com/g9awzfZdiosAAAAi/stitch-line-stickers.gif)
 
 
 
